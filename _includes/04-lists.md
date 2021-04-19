@@ -1,5 +1,5 @@
 1. I like animals
-  - Learning about how do they interact with each other and the environment is what defined my career interst 🐯
+  - Learning about how do they interact with each other and their environment is what defined my career interest 🐯
   - Pets are always funny and cool! :octocat:
   - Common, they rule! 🐦
 2. Cooking is fun
