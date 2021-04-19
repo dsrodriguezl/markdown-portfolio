@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I am very interested on *Behavioral* and *Chemical Ecology*, and I am whilling to imporve and extend my _code_ knowledge to improve my *research*. 👨‍🔬
